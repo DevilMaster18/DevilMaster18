@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pol
+- 👋 Hi, I’m @pauladrian.dragomir
 - 👀 I’m interested in you
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on everything
